@@ -6,9 +6,6 @@ Website Pages - https://youtu.be/Vpt6EsQschA
 
 ![Screenshot 2024-07-12 140413](https://github.com/user-attachments/assets/ad180c57-faeb-44d9-bce0-fa87e7b8e321)
 
-![image](https://github.com/user-attachments/assets/f345c063-ddb8-4cb0-a7c4-08502389d1b9)
-
-![image](https://github.com/user-attachments/assets/8da7d467-db2d-48b6-b816-30cb807f0b5f)
 
 
 
