@@ -6,7 +6,8 @@ Here one can adopt as well as donate pet, with our mediator pet shelter called C
 
 ![image](https://github.com/user-attachments/assets/f345c063-ddb8-4cb0-a7c4-08502389d1b9)
 
-![image](https://github.com/user-attachments/assets/a43d26f9-bb1e-456d-8665-0820695fe950)
+![image](https://github.com/user-attachments/assets/8da7d467-db2d-48b6-b816-30cb807f0b5f)
+
 
 
 
